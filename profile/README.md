@@ -41,7 +41,7 @@ By following **The AI-Driven Entrepreneur's Playbook**, you will:
 
 **(Call to action -  Reinforcing the "Playbook" idea):**
 
-Ready to unlock **The AI-Driven Entrepreneur's Playbook**?  Follow our journey on [Your Website/Social Media Channels], subscribe for updates, and join us as we build a real business and map out the future of entrepreneurship – together!
+Ready to unlock **The AI-Driven Entrepreneur's Playbook**?  Follow our journey on ![](https://AIDrivenEntrepreneurPlaybook.com), subscribe for updates, and join us as we build a real business and map out the future of entrepreneurship – together!
 
 
 
